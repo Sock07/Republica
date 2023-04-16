@@ -1,3 +1,0 @@
-# Republica
-
-VERAZ
